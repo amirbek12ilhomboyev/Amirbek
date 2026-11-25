@@ -1,0 +1,2 @@
+# Amirbek
+Mening birinchi loyiham
